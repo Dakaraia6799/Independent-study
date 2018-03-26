@@ -1,3 +1,3 @@
 # Independent-study
 ## Table of Contents
-"1) Entry 1"
+1) Entry 1
