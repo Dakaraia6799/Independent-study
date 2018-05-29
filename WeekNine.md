@@ -1,1 +1,1 @@
-
+This is the last week of the Independent study project and I have been going through everything such as; trying to figure out how I am going to present the work I have learned for the past nine weeks.
